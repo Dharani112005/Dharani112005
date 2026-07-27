@@ -37,8 +37,7 @@ Currently exploring opportunities in:
 ## 📫 How to Reach Me
 
 📧 **Email:** subi9843@gmail.com  
-📍 **Location:** Coimbatore, India  
-🔗 **LinkedIn:** [linkedin.com/in/yourusername](https://linkedin.com/in/yourusername)  
+📍 **Location:** Coimbatore, India   
 🔗 **GitHub:** [github.com/Dharani112005](https://github.com/Dharani112005)
 
 ---
