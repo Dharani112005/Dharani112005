@@ -39,7 +39,7 @@ Currently exploring opportunities in:
 📧 **Email:** subi9843@gmail.com  
 📍 **Location:** Coimbatore, India  
 🔗 **LinkedIn:** [linkedin.com/in/yourusername](https://linkedin.com/in/yourusername)  
-🔗 **GitHub:** [github.com/yourusername](https://github.com/yourusername)
+🔗 **GitHub:** [github.com/yourusername](https://github.com/Dharani112005))
 
 ---
 
